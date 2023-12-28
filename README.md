@@ -1,1 +1,1 @@
-# integra-o-compet-ncia
+# integra-o-de-compet-ncia
